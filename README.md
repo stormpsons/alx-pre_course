@@ -1,2 +1,2 @@
 I am the best
-Isaac Thompson
+Isaac the mastermind
